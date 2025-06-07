@@ -1,1 +1,1 @@
-# ClimaX---Registro-de-Eventos-Extremos
+João Pedro Solosano Cintra RM:551941
